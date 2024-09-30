@@ -1,2 +1,1 @@
-### Welcome to my blog :)
-
+I'll post my first content soon.
